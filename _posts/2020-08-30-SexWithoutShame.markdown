@@ -1,7 +1,8 @@
 ---
-title: Sex Without Shame
+title: Sex Without Shame22
 layout: post
-image: "/images/posts/SexWithoutShame.jpg"
+image: /images/posts/SexWithoutShame.jpg
+published: true
 ---
 
 Sex Without Shame: Encouraging the Child's Healthy Sexual Development by Alayne Yates
