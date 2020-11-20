@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 layout: post
 image: /images/posts/CodependentNoMore.jpg
 ---
