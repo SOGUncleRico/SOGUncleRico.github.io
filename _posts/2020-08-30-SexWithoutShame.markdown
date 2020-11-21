@@ -1,5 +1,5 @@
 ---
-title: Sex Without Shame
+title: Sex Without Shame by Alayne Yates
 layout: post
 image: /images/posts/SexWithoutShame.jpg
 published: true
