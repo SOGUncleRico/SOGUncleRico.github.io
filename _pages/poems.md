@@ -4,8 +4,8 @@ title: Poems
 image: /images/pages/about.jpeg
 published: true
 ---
-> The Gestalt Prayer
-Fritz Perls
+> **The Gestalt Prayer
+Fritz Perls**
 >
 I do my thing
 and you do your thing.
