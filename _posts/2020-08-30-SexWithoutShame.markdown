@@ -4,9 +4,6 @@ layout: post
 image: /images/posts/SexWithoutShame.jpg
 published: true
 ---
-
-Sex Without Shame: Encouraging the Child's Healthy Sexual Development by Alayne Yates
-
 > Why is cupid always portrayed as an infant? To be in love is to reexperience infancy.
 **Page 12**
 
