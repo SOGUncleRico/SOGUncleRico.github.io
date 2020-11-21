@@ -1,9 +1,20 @@
 ---
 layout: page
 title: Poems
-image: '/images/pages/about.jpeg'
+image: /images/pages/about.jpeg
+published: true
 ---
+> The Gestalt Prayer
+Fritz Perls
 
-> This is the base Jekyll theme. You can find out more info about customizing your Jekyll theme, as well as basic Jekyll usage documentation at [jekyllrb.com](http://jekyllrb.com/)
+I do my thing
+and you do your thing.
+I am not in this world
+to live up to your expectations
+And you are not in this world
+to live up to mine.
 
-> 2
+You are you and I am I.
+And if by chance
+we find each other,it's beautiful,
+If not, it can't be helped.
