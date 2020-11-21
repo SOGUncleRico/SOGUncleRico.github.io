@@ -536,4 +536,3 @@ might not be quite Klein’s happiness of regaining what was felt to be
 lost—because that phrase suggests return to a golden age. This journey
 is about going to parts of the self that formerly we felt we had to avoid,
 and finding that they can be loved.
-
