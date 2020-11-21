@@ -2,6 +2,7 @@
 published: true
 layout: post
 image: /images/posts/CodependentNoMore.jpg
+title: Codependent No More
 ---
 > One fairly common denominator was having a relationship, personally or professionally, with troubled, needy, or dependent people. But a second, more common denominator seemed to be the unwritten, silent rules that usually develop in the immediate family and set the pace for relationships.8
 
