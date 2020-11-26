@@ -5,7 +5,7 @@ image: /images/posts/DesireAndTheFemaleTherapist.jpg
 title: Desire And The Female Therapist by Joy Schaverien
 ---
 >Desire presupposes a gap, a distance between the subject and its object and so, in the merged state, there is no desire. The coming to life of desire for an ‘Other’ brings differentiation. In this case there was, at first, a fused—a half-alive—state in which there was no separation. 
->
+
 >The ways in which psychosexuality and the unconscious are closely bound together are complex, but most obviously the unconscious contains wishes that cannot be satisfied and hence have been repressed. Predominant among such wishes are the tabooed incestuous desires of childhood. (Mitchell 1982:2
 
 >Without a symbolic law, human beings cannot function. ‘The Symbolic places all human beings in relation to others, and gives them a sense of their place in the world, and the ability to speak and be understood by others’ (Brennan 1989:2)  
