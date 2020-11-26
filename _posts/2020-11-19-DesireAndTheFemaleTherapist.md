@@ -7,128 +7,128 @@ title: Desire And The Female Therapist by Joy Schaverien
 >Desire presupposes a gap, a distance between the subject and its object and so, in the merged state, there is no desire. The coming to life of desire for an ‘Other’ brings differentiation. In this case there was, at first, a fused—a half-alive—state in which there was no separation. 
 
 >The ways in which psychosexuality and the unconscious are closely bound together are complex, but most obviously the unconscious contains wishes that cannot be satisfied and hence have been repressed. Predominant among such wishes are the tabooed incestuous desires of childhood. (Mitchell 1982:2
->
+
 >Without a symbolic law, human beings cannot function. ‘The Symbolic places all human beings in relation to others, and gives them a sense of their place in the world, and the ability to speak and be understood by others’ (Brennan 1989:2)  
 >it is through the objects we make that we come to know ourselves.  
->
+
 >the gaze is about seeing and being seen. ‘The gaze is not an internal attribute, like a bodily perception; it is situated outside. By this Lacan means that, like the phallus, like desire itself, the gaze emanates from the field of the Other’ (Grosz 1992:449).  
->
+
 >In therapy the listener gives weight to the speaker’s words. When the client (male or female) has felt unnoticed, careful listening is a therapeutic act.  
->
+
 >To understand how men and women love requires that we understand how any particular woman or man loves; to understand femininity and masculinity and the various forms of sexuality requires that we understand how any particular woman or man creates her or his own cultural and personal gender and sexuality. (Chodorow 1994:92)  
->
+
 >I find sexual arousal to be common in all gender combinations including the female therapist-female patient dyad (see O’Connor & Ryan 1993). Men also experience long-term erotic transfer-ences to female therapists (Kavaler-Adler 1992) and I have published an example of one such case (Schaverien 1991).  
->
+
 >The point is that intuitively I knew that this touch, this physical contact, was inappropriate. This was not a thought, it was a preconscious response. There was an intuitive understanding that to have engaged in sexual activity would not have satisfied the desire for either of us. Nor would it have furthered the therapeutic aim. Instead it would have destroyed the quality of the engagement. Even this kiss altered something. Transference love is one of many frail and slender threads which connect the present to the past. The connection to the past is also a way to the future if it is carefully respected. In concretising such a desire by acting on it, the impossibility of satisfaction becomes even more evident than it was before. The link to the self through the ‘Other’ is severed. Bodies might meet but the inner need which existed in that area ‘in-between’ remains untouched. This causes a depression which adds to, even exacerbates, the original loss, deprivation or abuse. In this case the fact that he and I both intensely desired physical contact does not alter this fact. Freud made the point on many occasions that no human desires can ever be satisfied solely by biological means.  
->
+
 >In a social situation a relationship with me would have become like any other of the numerous difficult relationships this man had had with women. The only hope for him was in not acting on this powerful transference and permitting it to develop and to come to conscious awareness. It is through abstinence from acting on the desire that transformation takes place. This has been elucidated many times since Freud first wrote about the transference (Freud 1912, 1915).  
->
+
 >Many of these issues are illustrated by a recently published book which documents the alleged sexual exploitation of a male patient by a female psychiatrist/psychoanalyst in the USA (McNamara 1994). In this book McNamara gives a vivid and disturbing account of a psychotherapy that went tragically wrong and ended in the psychotic breakdown and subsequent suicide of a male medical student. It is claimed that the psychiatrist became overinvolved with her patient. Whether or not she had sex with the patient remains unknown but it is claimed that sexually explicit writings, in her own hand, indicate that she had, at the very least, shared her sexual fantasies with him, encouraging an intense, eroticised regression. It is alleged that she permitted him to think that she was his mother and in enacting this role, she wrote him stories and gave him gifts. This went beyond the boundaries of any usual therapeutic contract; she was available for him at all times of day and even when she was on vacation. Whatever the truth of this case, the point is that this therapist experienced sexual arousal which was mixed up with a maternal countertransference. Rather than working with this countertransference as a multi-layered phenomenon, she took it as exclusively maternal, thereby becoming entangled with her patient (positioned as an infant) by expressing her fantasies to him (positioning herself as mother).  
->
+
 >In addition to acting out there are other, more subtle forms of sexual abuse between female therapists and their male patients, just as there are between mothers and sons. These include unconscious incestuous demands which make it impossible for the son to leave his mother and make relationships with other women (Chasseguet-Smirgel 1984a). The son-lover myth, as expounded by Jung (1956, CW 5) and Neumann (1954), is the mythical parallel of this psychological state. This incestuous atmosphere may be repeated in the transference and engage the therapist in an unconscious erotic countertransference. It is possible for this to become subtly abusive. The unconscious state may be repeated in the therapist’s disregarding the adult aspects and so keeping the patient to herself rather than fostering his ability to make relationships with others.  
->
+
 >Eros expresses a need for renewal, its meaning ‘is to be sought not in its historical antecedents but in its purpose’ (Jung 1959a, CW 8:74). Sexual desire, as it manifests in the transference, is a symbol for patterns of relatedness (Jung 1956, CW 5:7–11). The very nature of the unconscious means that it is inaccessible without the help of an ‘other’ and it is the analyst who holds the conscious attitude which the patient seeks. It is this which binds the patient to the therapist. Thus, the purpose of the apparently infantile erotic connection is a desire for individuation; for a state of consciousness (Jung 1956, CW 5, 8 and 16).  
->
+
 >The erotic transference is a form of ‘transference neurosis’ and is a common and necessary phase in psychotherapy. It is a simple form of transference love which reveals past patterns of relating and mobilises the potential for growth.  
->
+
 >Persistent interpretations of the infantile nature of the transference may give an implicit message that the patient is forbidden to invest in people other than the analyst (Chasseguet- Smirgel 1986) and this may make it difficult for him to make relationships outside the analytic frame.  
->
+
 >‘The phallic mother is a pre-Oedipal fantasy of an omnipotent and absolutely powerful, sexually neutral figure’ (Grosz 1992:314). She is the object of desire and also the subject who desires the child as her object (Grosz 1992:315). Although this is attributed to the mother by both sexes, it is the boy who will associate the phallic mother with possession of the male genital organ. The phallic mother is an image which can become persecutory intrusive and potentially penetrating (Grosz 1992).  
->
+
 >If the female therapist working with a male patient understands the sexual feelings expressed by her patient to be based in mother-child transference dynamics, she may interpret in a way which will foster regression. There are times when this is totally appropriate, but when there is a strong sexual atmosphere, this merits attention in its own right. It may be a form of abuse of power by female therapists to reduce all the drives experienced by a male patient to the desires of infancy; this may be an affront to the adult man.  
->
+
 >Although the demands on the therapist are infantile and often related to early experience, there may be awareness of the fact that the couple are an adult man and woman. The intimate pattern originating in infancy is expressed as a desire in the present. He demands, but also fears, her reciprocation of his sexual wishes. The infantile base of the transference means that there needs to be acknowledgement of the adult who desires sexual intimacy at the same time as enabling the expression of the regression.  
->
+
 >Psychoanalytic insights cannot be separated from those of the culture in which the therapy takes place. Relationships between people, of whatever gender, will inevitably be influenced by the individual’s experience of the predominating culture of the wider society.  
->
+
 >The analyst is within love from the start, and if he forgets it he dooms himself not to perform an analysis. …The analyst occupies that place of the Other; he is a subject who is supposed to know—and know how to love—and as a consequence he will, in the cure, become the supreme loved one and first-class victim. (Kristeva 1983:13)  
->
+
 >Within an analysis the recognition of the capacity for being loved, when not helpless and dependent, forecasts the seeking of a new adult love object outside of the analysis (Searles 1959:289).  
->
+
 >It was Horney (1932) who first drew attention to the ‘Dread of Woman’. She suggested that male fear of women, and particularly the vagina, was the source of much idealisation of the feminine. In this she was the first to challenge Freud’s notion of castration anxiety. When this material constellates in the transference, the countertransference may be uncomfortably affected for the female therapist. It brings her person and her body into the subject matter of the session in a very intimate way. This is why an understanding of the symbolic nature of the transference is so helpful. It can be a relief to the patient to understand that the origins of his interest in the therapist’s body are connected to early developmental phases and it can also be helpful to the therapist to understand it in this way. However, problems arise when this understanding is used as an avoidance of the reality of the feelings in the present. It is often the unconscious fear of woman which underlies an intense idealisation which may occur in the transference; the negative may be split off. Alternatively, there may be a persistent denigration expressed towards women in general and the therapist in particular, and it is likely that in this case the positive feelings are denied. The fear of women may also underlie the apparently detached attitude of some male patients to their therapy.  
->
+
 >Thus, the boy is likely to repress qualities that he views as feminine in himself, and simultaneously reject and devalue women (Chodorow 1978:181). In the therapeutic relationship elements of these differences become apparent. This repudiation of the mother underlies the sometimes powerful idealisation and denigration of the female therapist by patients of both sexes. It is particularly with male patients that idealisation of the feminine seems to be linked to an unconscious association with death. Some of the difficulties male patients experience in therapy with a woman are related to a deep and primitive fear for their survival.  
->
+
 >The fear of death associated with the son’s desire for the mother is developed by Chasseguet-Smirgel (1984b). The little boy’s realisation that the woman ‘possesses an organ which allows access to her body’ is terrifying. His pregenital impulses are projected; he fears that which he also desires; thus his intense desire for connection with the mother is experienced as her desire. He fears that he will be sucked back into the womb, absorbed and so annihilated (Chasseguet-Smirgel 1984b: 171). Referring to Stoller (1968), she points out that the fear of femininity, and so close identification with the mother, is, for men, linked to a fear of loss of their sexual identity. In the beginning of his life the young male is ‘plunged into his mother’s femaleness’ [but] ‘This primary symbiosis must be undone so that masculine identity can be developed by separating from the maternal identity’ (Chasseguet-Smirgel 1984a). For this difference to be made, for this separation to take place, the father is required.  
->
+
 >From the beginning there was an intensely infantile/erotic atmosphere in the transference. He was experienced by the therapist as seductive and heavily dependent. He became increasingly unable to do without the therapy but, at the same time as reporting his need for the sessions and his difficulty in managing between them, he described thoughts of running away to another part of the country and never returning. He imagined leaving both his mother and the therapist and never returning. He did, in fact, drive to the other end of the country telling the therapist that he would be away for a week. He drove all day and night and, exhausted, he stayed in a bed-and-breakfast place where he became overwhelmed with loneliness. He returned the next day and phoned; he needed to make contact immediately.  
->
+
 >Once again I think that if I had interpreted his sexual desires and also fears in relation to the transference, he might have been able to stay. His sexual and infantile needs were very mixed up. But at this stage I think that the sexual impulse needed acknowledgement prior to the infantile.  
->
+
 >Furthermore, images which are apparently maternal often have a sexual element, whilst overtly sexual images may be related to the maternal.  
->
+
 >The analyst needs to be aware of the effects of such a countertransference. If it is handled consciously and appropriately, such an attraction can have a positive effect on the patient. It may enable him to express feelings he may not easily share. Guttman (1984) suggests that a well-handled attraction to the patient may actually facilitate his feelings of self-worth.  
->
+
 >Resistance in the female therapist may be exacerbated when the male patient’s oedipal feelings are linked to images in which the woman is sexually degraded (Lester 1985). This may arouse a negative countertransference which is exactly what the male patient fears. It is often this that makes him refrain from disclosing negative images to a female analyst. It is less inhibiting to discuss negative female stereotypes with other men as this is the norm in social interaction. What is unusual in this therapeutic relationship is that the ‘witness is a woman’ (Guttman 1984). The male patient will be careful in expressing his sexual feelings lest he be considered dangerous’ (Guttman 1984:191). Men are commonly troubled about being seen as potential rapists and they fear that expression of such impulses is tantamount to acting on them. This was the case with Mr C.  
->
+
 >He linked it to his previous relationships with women where he would get close and then withdraw in terror. He desired a sexual relationship but he had always felt he needed something first without understanding what it might be. It began to become evident that he desired maternal holding before he could experience himself as sexual in relationship. Once he had admitted what he felt he was able to contact his dependent, erotic and sadistic, violent fantasies.  
->
+
 >I have suggested that, when erotic dependency issues emerge in the transference, a crisis may occur and the male patient may terminate prematurely. It seems to me that this may, in part, account for the assertions that sustained erotic transferences do not occur between female therapists and their male patients. If this crisis can be overcome, a sustained erotic transference may develop which may enable the male patient to make a deeper relationship to himself and eventually to others. Surviving this crisis may be a significant point in the therapy with a male patient.  
->
+
 >This may be helpful in developing an understanding of art psychotherapy as treatment in anorexia and other borderline conditions. It implies that art offers a means of communication in which the patient may maintain their privacy and then admit the therapist gradually.  
->
+
 >An additional potential pitfall in cases such as this is in being thought to blame the mother. That is not my intention either. Psychology is generated in the family but there is a further aspect which the individual brings to their life.  
->
+
 >Anorexia is an extreme form of denial of desire. The desire for food and so nourishment of the body is transformed, through a supreme effort of self- control, into abstinence. Desire pre-supposes an Other towards whom there is a movement; thus, it is to do with relationship. Anorexia is a turning away from the Other and, through a false sense of power, it is a movement away from life and towards death. In the case of Carlos this will become evident in the pictures he made during the process of his treatment.  
->
+
 >anorexia is a denial of desire of mess and risk. The yearning for neatness, order and detail is a form of control of passion.  
->
+
 >The sun is in the distance on the right side, often considered to be the side of consciousness.  
->
+
 >Thus the early stage of the transference was simultaneously a movement towards the therapist and a need to keep her at a distance. In response, the countertransference was complex. First, here was a new patient who had already made a mark by the gift of a picture and so it was clear that I was not ‘nobody’ to him. Secondly, he was engaging in the art process with considerable intensity and revealing creative ability. Through his picture he was communicating the desperation of his state. There was an interest in his engagement with the art process.  
->
+
 >As a serpent he [the hero] is to be ‘lifted up’ on the cross. That is to say as a man with merely human thoughts and desires who is ever striving back to childhood and the mother, he must die on the ‘mother tree’, his gaze fixed on the past. …This formulation is not to be taken as anything more than a psychological interpretation of the crucifixion symbol, which because of its long lasting effects over the centuries must somehow be an idea that accords with the nature of the human soul. (Jung 1956, CW 5:367)  
->
+
 >The desire for oneness was revealed in the pictures and related to his idealised and beloved mother.  
->
+
 >The incest motif is bound to arise because when the regressing libido is introverted for internal or external reasons it always reactivates the parental imagos and thus apparently re-establishes the infantile relationship. But this relationship cannot be re-established because the libido is an adult libido which is already bound to sexuality and inevitably imports an incompatible, incestuous character into the reactivated relationship to the parents. It is this sexual character that now gives rise to the incest symbolism. Since incest must be avoided at all costs, the result is either the death of the son-lover or his self castration as a punishment for the incest he has committed, or else the sacrifice of instinctuality, and especially of sexuality, as a means of preventing or expiating the incestuous longing. (Jung 1956 (1976 edn), CW 5:204)  
->
+
 >Thus, the hospital and the nurses who cared for him took on the role of the mother. His regression, which in the outside world could not be accommodated, was permitted within the bounds of the hospital.  
->
+
 >This picture shows a castrated, trapped figure with no means of entering the world. Held within the maternal realm, he is unable to separate and what is missing is the phallus, or in this case, the actual penis. However, I consider this to be a rather literal reading of the situation; what is revealed in this picture is the ‘lack-in-being’, the loss. In this state of atrophy he is alone, without another and devoid of desire. Desire could be understood to be the life force, and at this early stage it is turned inwards. What is needed is the engagement with an Other to lead him out of this trapped state. In the very absence of desire its purpose is revealed. Some form of desire is essential to life, without it there is no future, no hope.  
->
+
 >Pictures have the advantage of revealing the inner world and bringing it to consciousness.  
->
+
 >We saw in Plate 2 that the therapist was identified with the sun, which was at the centre of her name, and so we might consider that, at some probably unconscious level, the movement is towards her as holding the hope of transformation.  
->
+
 >The separation from his actual outer-world real family made it possible for him to deal with the inner-world images which, while he was still in contact with them, could not be clearly identified. Thus, he began to be able to separate the internalised representations from the people to which they were attached. This intensified the transference to the institution and to the therapist.  
->
+
 >His desire for separation and difference is struggling with the part of him that still wishes for a return to the maternal shelter.  
->
+
 >The art therapist and a certain female nurse were central in his treatment. We were both drawn into caring for him in different ways. The nurse dealt with the practical issues with regard to his body weight, food intake and day-to-day physical care. She became very important to him and involved in his world. At the same time the art therapist accepted his inner- world turmoil and was a witness as it emerged in his pictures. There was something of a split transference here which we attempted to hold together with the rest of the team involved in his care. It is likely that the transference represented the move away from the family. The therapist was drawn into the erotic, incestuous family atmosphere. This is a hopeful sign, as we have seen, because the desire constellated in the transference has a purpose. It is a channel which offers potential movement out of the fused state, towards the future and transformation. In response, the countertransference was very engaging and Carlos and his concerns were never very much out of mind. The erotic element in the countertransference was not overtly sexual but nor was it merely maternal.  
->
+
 >Until relatively recently there was little discussion of the transference and countertransference relationship in art therapy. In the USA some art therapists had discussed the topic, notably Naumberg (1953, 1966), a pioneer in the field. She worked with the transference and viewed art as a way of understanding psychoanalytic processes. Kramer (1971) on the other hand considered that the artwork was a ‘container of emotions’ and she, primarily, ‘related to the patient through their art’ (Waller 1991). Champernowne, a Jungian analyst and early champion of art therapy in Britain, published two papers (1969, 1971) in which she expressed the view that it was the role of the art therapist to elicit material through the art process. However, she considered it was for the psychotherapist to analyse the transference. Adamson (1986) worked in this way within psychiatry. He quietly and sensitively encouraged his patients to paint in the studio at the Netherne. They then took their pictures to the psychiatrist for discussion (see Cunningham Dax 1953).  
->
+
 >The infant’s omnipotent power in relation to her mother is centred on the need to feed and the reciprocal need of the mother to gratify her, to feed her when she is hungry. As the infant grows and develops her needs change and gradually she begins to test her independence, to leave the mother and return on her own terms. The first evidence of this is when the infant is able to crawl away, then to walk and explore the world for herself (Eichenbaum & Orbach 1983). This can only be achieved if the mother can provide a base to which the child may safely return (Mahler et al. 1975). The mother, or parenting adult, is needed to provide a good-enough holding environment (Winnicott 1971), which allows the child to experience safety but also a tolerable amount of failure of the maternal environment. The child needs to be nurtured and fed but learns to sustain a certain degree of frustration which would have been intolerable in infancy.  
->
+
 >Freud began by recognising the desire of the patient when he came to understand ‘transference love’ (Freud 1915). It is when the patient’s desire enters the therapeutic encounter that analysis begins to come alive. It is then that the therapist’s desire becomes engaged and, inevitably, both people are affected and changed. Thus, desire is intrinsic to the transference.  
->
+
 >‘If someone’s need for love is not entirely satisfied by reality, he is bound to approach every new person he meets with libidinal anticipatory ideas’ (Freud 1912:100). Thus, in the transference, the analyst very often becomes the desired object. This is only gradually relinquished as consciousness takes over from the unconscious drive.  
->
+
 >Bion distinguishes between memory and desire. Memories are often treated as possessions whilst desires, although often spoken of as if they too were possessions, in fact tend to possess us (Bion 1970:42). The past is contained within memory; in this sense the past is fixed and ‘memories can be regarded as possessions’ (ibid.). When we hold on to memories, even the memory of the last session, we become rigid or inflexible because something is fixed in mind. We tend to behave as if we own memories. Desires are different: ‘Desires while just as much “in” the mind as are memories, and therefore just as much “possessions” are spoken of as if they possessed the mind’ (ibid.) and, when desires possess the mind, we are on the edge of psychotic experience.  
->
+
 >Desire is a form of yearning and, when it is unconscious, there is merely an identification but no gap for the imaginal. The aim in therapy is to open up this area to reveal the gap, the loss. This enables the experience of grieving to take place so that a separation may begin. If there is some psychological movement, some form of symbolisation, then the object of desire may be linked to imagination.  
->
+
 >We saw that desires as well as memories may be regarded as possessions although very often they possess us (Bion 1970).  
->
+
 >It is when regression takes place that feelings from the past become live in the present and change is possible.  
->
+
 >Very often the child image relates to the lost object; the desire is for the object which originally evoked the desire and is experienced as its cause—perhaps the mother. Conversely, it is the object which seems, in the transference, to offer satisfaction of the desire which re-awakens the image—possibly the therapist. Thus, the infantile, erotic and incestuous strivings, which ‘represent’ themselves in the transference, do so in the picture but they are evoked by the desire, demand and need for the therapist as person.  
->
+
 >The female therapist may find herself idealised in the transference with a male patient, and so drawn into identification as one of these milkmaids or nymphs. If she can detach herself from this identification and, by her stance and/or interpretations separate from it, then the male patient may be able to begin to separate from the image and so find his male power.  
->
+
 >This was exemplified by James who, it seemed, had suffered a lack of positive mirroring. From his account it became evident that, from the first months of his life, he had adapted his demands according to his vulnerable mother’s needs. In the transference he quickly became regressed and found all analytic comments or interpretations offensive. If no words were spoken he would watch my face. If he could not read my expression he would ask what I was thinking. He could not bear me to have my own thoughts because it felt as if I was leaving him. Whether I interpreted or remained silent, it made little difference. He felt persecuted and became angry. After several months his fury drove him to a point at which there was a genuine danger that he would give up his therapy. Interpretations were not working and he told me vehemently how abusive he found them. I suggest that this was because interpretations introduced the gaze of the ‘Other’. The effect of this was to make him feel separate from me and so fragmented and separated from himself. For this reason I suggested that using the art materials might help.  
->
+
 >Transference desire is a yearning often for something not clearly focused.  
->
+
 >The Other is the desired object and at first this may be found in a picture and secondly in the therapist. As we have seen in Chapter 2, the analyst or psychotherapist may become this loved ‘other’ for a time. The erotic transference and countertransference are made up of many fantasy images and projections. Among these is the hope that this person will be that Other who will make the difference. This may be irrespective of the actual gender of the pair but, as we have seen, it may be intensified in certain combinations. Consequently, the falling in love which takes place within an analytic encounter is often a narcissistic form of self-love reflected in the eyes of the Other. When pictures are an embodiment of the desire of the patient they play an important role in this dynamic.  
->
+
 >The difference between the effects of primary and secondary narcissism is eloquently stated by Winnicott (1971:133): ‘The man who falls in love with beauty is quite different from the man who loves a girl and feels she is beautiful and can see what is beautiful about her.’ The first is an effect of primary narcissism, the second, secondary narcissism.  
->
+
 >The eye and the gaze are not the same thing. ‘This is for us the split which is manifested at the level of the scopic field.’ Desire is manifest in the gaze, ‘the gaze is the underside of consciousness’ (Lacan 1977a: 83).  
->
+
 >In the transference the patient forms a ‘picture’ of the therapist. The therapist is observed and, through the transference, she becomes the object of the patient’s gaze. A transference is a view which is more than usually affected by the gaze from within. This gaze can be a true perception of the situation or the state of the therapist, but the colour may be tinted by the transference. Take the comment ‘I think I’ve upset you’, made to me by a patient recently. This could be an accurate perception on the part of the patient. His disclosure may have discomforted the therapist in some way in which case his eyes do not deceive him. However, his view may be coloured by the transference and so his perception of outward data is stained by perception from the inward gaze. It may be the case, for example, that he has never disclosed this material before for fear that it would upset his mother. The transference is such that he perceives, in the therapist, the reaction that he had anticipated, and also feared, from his mother. Thus, his present perception is stained by the past and the transference is live in the present. This does not remain fixed and the ‘picture’ of the therapist is a frequently shifting picture within the frame of the therapeutic setting.  
->
+
 >Much of this book has been inspired by my reading of Lacan and particularly his work on the gaze (Lacan 1977a).  
->
+
 >Sexual Feelings in Psychotherapy (Pope et al. 1994).                                    
