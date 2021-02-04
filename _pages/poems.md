@@ -16,5 +16,5 @@ to live up to mine.
 >
 You are you and I am I.
 And if by chance
-we find each other,it's beautiful,
+we find each other, it's beautiful,
 If not, it can't be helped.
